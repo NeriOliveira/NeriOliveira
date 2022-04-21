@@ -8,13 +8,13 @@
 
 - 🚀 I'm starting a Startup with a good team
 
-- 💞️ I'm looking to collaborate on road safety projects or other areas with the aim of helping people
+- 💙 I'm looking to collaborate on road safety projects or other areas with the aim of helping people
 
 - 🆒I prefer to work in a team
 
 - 📫 You can contact me via LinkedIn or email (patrick.neri.oliveira@gmail)
 
-- 🗺 I love traveling with my wife
+- 🌎 I love traveling with my wife
 
 - 🎮 I like to play MMORPG
 
