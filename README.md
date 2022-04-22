@@ -14,7 +14,7 @@
 
 - 📫 You can contact me via LinkedIn or email (patrick.neri.oliveira@gmail)
 
-- 🌎 I love traveling with my wife
+- 🌎 I love travel with my wife
 
 - 🎮 I like to play MMORPG
 
