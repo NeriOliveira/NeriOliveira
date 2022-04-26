@@ -12,7 +12,7 @@
 
 - 🆒I prefer to work in a team
 
-- 📫 You can contact me via LinkedIn or email (patrick.neri.oliveira@gmail)
+- 📫 You can contact me by LinkedIn or email (patrick.neri.oliveira@gmail)
 
 - 🌎 I love travel with my wife
 
