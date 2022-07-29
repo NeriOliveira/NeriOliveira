@@ -4,18 +4,16 @@
 
 - 👀 I'm interested in Artificial Intelligence
 
-- 🌱 I am currently learning Python and Dart
+- 🌱 I am currently learning Dart, Kotlin, Swift and Python with TF
 
-- 🚀 I'm starting a Startup with a good team
+- 🚀 I'm developing some projects
 
-- 💙 I'm looking to collaborate on road safety projects or other areas with the aim of helping people
+- 💙 I hope to collaborate with anything that can make a difference in people's lives for the better
 
-- 🆒I prefer to work in a team
-
-- 📫 You can contact me by LinkedIn or email (patrick.neri.oliveira@gmail)
+- 🆒 I prefer to work in a team
 
 - 🌎 I love travel with my wife and spend a time with my family
 
 - 🎮 I like to play MMORPG
 
-- 🏄🏽‍♂️When I can, I like to surf and skate
+- 🏄🏽‍♂️ And... When I can, I like to surf and skate
