@@ -2,7 +2,7 @@
 
 - 🎓 I'm studying Entrepreneurship and Technological Innovation in Engineering at UNESP
 
-- 👀 I'm interested in Artificial Intelligence
+- 👀 I'm interested in Flutter and Artificial Intelligence
 
 - 🌱 I am currently learning Dart, Kotlin, Swift and Python with TF
 
