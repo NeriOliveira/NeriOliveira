@@ -17,3 +17,6 @@
 - 🎮 I like to play MMORPG
 
 - 🏄🏽‍♂️ And... When I can, I like to surf and skate
+
+
+[![Top Linguagens](https://github-readme-stats.vercel.app/api/top-langs/?username=Patrick-Neri-Oliveira&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
